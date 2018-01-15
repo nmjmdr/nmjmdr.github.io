@@ -1,1 +1,0 @@
-# nmjmdr.github.io
